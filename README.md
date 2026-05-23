@@ -1,3 +1,3 @@
 ## Demonstração
 
-![Garrafa](Imagem/Garrafa.jpg)
+![Garrafa](IMG-20260521-WA0062.jpg)
