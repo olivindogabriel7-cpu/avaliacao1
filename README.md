@@ -1,3 +1,3 @@
 ## Demonstração
 
-![Garrafa](IMG-20260521-WA0062.jpg)
+![Garrafa](IMG_8579.png)
